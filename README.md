@@ -1,0 +1,1 @@
+so I’m in a marching band and I have to do freakaing bohemian and party rock and thriller for senior night (I hate being a senior in 2027 -_-) and I just need to ask…….DO ANY OF YOU PEOEPLES DO THIS?!! I mean do you guys do these songs as well? or is it my autistic band group :/
